@@ -39,4 +39,4 @@ Pronto(a) para ver o futuro do mercado financeiro trabalhar para você?
 👉 [**CLIQUE AQUI PARA ACESSAR O ESTÚDIO NO NOTEBOOKLM**](https://notebooklm.google.com/notebook/a59a6559-37c7-4b99-8e60-636e955c9ffc)
 
 ---
-*Desenvolvido com orgulho por Ana Caroline Campos Santos como parte do bootcamp DIO + Bradesco. 💻✨*
+*Desenvolvido com orgulho por Ana Caroline Campos Santos como parte do bootcamp DIO + Bradesco.* 💻✨
